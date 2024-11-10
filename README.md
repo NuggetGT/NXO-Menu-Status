@@ -1,1 +1,1 @@
-Status: Undetected
+CURRENT STATUS : UNDETECTED
