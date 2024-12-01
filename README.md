@@ -1,6 +1,1 @@
-DISCORD.GG/NXOONTOP
-
-MENU STATUS : UNDETECTED
-
-OVER 150 MODS!
-
+Ogga has a small penis
